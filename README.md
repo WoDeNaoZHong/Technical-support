@@ -1,5 +1,3 @@
-YB-MoShuBei - Technical Support
+小鹿婚庆家园-技术支持
 
-If you have any suggestions or functional questions about (YB-MoShuBei), you can contact us
-
-Our email: bertuccipadayao@gmail.com
+我们的电子邮件：406742790@qq.com
